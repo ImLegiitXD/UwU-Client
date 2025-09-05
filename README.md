@@ -9,10 +9,7 @@ mtf keeps ratting kids with this 🤣
 
 someone related to the rat shared this src with me
 
-not sure what differences between the original client and this rename
-
-[original client](https://github.com/randomguy3725/MoonLight) 
-
+not sure what differences between the [original client](https://github.com/randomguy3725/MoonLight) and this rename
 
 btw mtf members lol 😒:
 
